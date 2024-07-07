@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm currently learning to code
+How to reach me: johntmuir2018@gmail.com
+Pronouns: Any/All
